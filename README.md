@@ -1,4 +1,4 @@
-# Video and written review of the SMARTY Mobile Network from Three
+# Video and written review of the SMARTY Mobile Provider backed by the Three network
 
 [![](http://img.youtube.com/vi/9oLVY-l-4WQ/0.jpg)](http://www.youtube.com/watch?v=9oLVY-l-4WQ "Smarty Mobile Review")
 
