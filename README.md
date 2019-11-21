@@ -5,4 +5,4 @@
 - [Get a free month of ANY plan on SMARTY Mobile](https://rcsmessage.co.uk/smarty)
 - [View our written review of SMARTY Mobile Network](https://rcsmessage.co.uk/smartymobilereview)
 
-Read details on SMARTY mobile network coverage, replicate braodband with a SMARTY Hotspot on your phone, exclusive post-Brexit roaming to SMARTY and Three and all the plans on SMARTY Sim-Only plans.
+Read details on SMARTY mobile network coverage, replicate broadband with a SMARTY hotspot on your phone, exclusive post-Brexit roaming for SMARTY and Three customers and all the plans on SMARTY sim-only deals which all include unlimited calls and texts.
